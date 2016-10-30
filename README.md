@@ -1,2 +1,2 @@
 # Hello-World
-My first repository
+I have no clue what GitHub is, but i am very confident it is important. The earlier i get a hang of this the better. Am doing Economics, and i would like to acquaint myself with good things in life... GitHub being one of those...
